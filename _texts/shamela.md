@@ -22,8 +22,8 @@ You see, Madam, I have some Value for your Good-nature, when in a Dedication, wh
 
 And now, Madam, I have done with you; it only remains to pay my Acknowledgments to an Author, whose Stile I have exactly followed in this Life, it being the properest for Biography. The Reader, I believe, easily guesses, I mean *Euclid's Elements*; it was *Euclid* who taught me to write. It is you, Madam, who pay me for Writing. Therefore I am to both,
 
-*A most Obedient, and*\
-*obliged humble Servant,*\
+*A most Obedient, and*\\
+*obliged humble Servant,*\\
 Conny Keyber.
 
 

@@ -1,4 +1,13 @@
 
+---
+layout: narrative
+title: An Apology for the Life of Mrs Shamela Andrews
+author: Henry Fielding
+source: "Fielding, Henry, 1707-1754. Joseph Andrews ; and, Shamela. London : Rutland, Vt. :J.M. Dent ; C.E. Tuttle, 1991. Print."
+---
+
+
+
 #### DEDICATION
 To Miss Fanny, &c.
 

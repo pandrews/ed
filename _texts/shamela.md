@@ -38,6 +38,7 @@ And now, Madam, I have done with you; it only remains to pay my Acknowledgments 
 Conny Keyber.
 
 
+
 #### LETTERS TO THE EDITOR
 
 The EDITOR to *Himself*
@@ -67,7 +68,9 @@ JOHN PUFF.
  
 *Note*, Reader, several other COMMENDATORY LETTERS and COPIES of VERSES will be prepared against the NEXT EDITION.
 
-### AN APOLOGY FOR THE LIFE OF MRS SHAMELA ANDREWS
+
+
+## AN APOLOGY FOR THE LIFE OF MRS SHAMELA ANDREWS
 
 
 *Parson* TICKLETEXT to *Parson* OLIVER

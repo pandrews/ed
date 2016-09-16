@@ -23,7 +23,9 @@ You see, Madam, I have some Value for your Good-nature, when in a Dedication, wh
 And now, Madam, I have done with you; it only remains to pay my Acknowledgments to an Author, whose Stile I have exactly followed in this Life, it being the properest for Biography. The Reader, I believe, easily guesses, I mean *Euclid's Elements*; it was *Euclid* who taught me to write. It is you, Madam, who pay me for Writing. Therefore I am to both,
 
 *A most Obedient, and*
+
 *obliged humble Servant,*
+
 Conny Keyber.
 
 
@@ -35,8 +37,10 @@ The EDITOR to *Himself*
 
 However you came by the excellent *Shamela*, out with it, without Fear or Favour, Dedication and all; believe me, it will go through many Editions, be translated into all Languages, read in all Nations and Ages, and to say a bold Word, it will do more good than the *C---y* have done harm in the World.
 
-*I am, Sir,*\
-*Sincerely your Well-wisher,*\
+*I am, Sir,*
+
+*Sincerely your Well-wisher,*
+
 Yourself.
 
 
@@ -46,15 +50,17 @@ JOHN PUFF, *Esq; to the* EDITOR
 
 I have read your *Shamela* through and through, and a most inimitable Performance it is. Who is he, what is he that could write so excellent a Book? he must be doubtless most agreeable to the Age, and to *his Honour* himself; for he is able to draw every thing to Perfection but Virtue. Whoever the Author be, he hath one of the worst and most fashionable Hearts in the World, and I would recommend to him, in his next Performance, to undertake the Life of *his Honour*. For he who drew the Character of Parson *Williams*, is equal to the Task; nay he seems to have little more to do than to pull off the Parson's Gown, and *that* which makes him so agreeable to *Shamela*, and the Cap will fit.
 
-*I am, Sir,*\
-*Your humble Servant,*\
+*I am, Sir,*
+
+*Your humble Servant,*
+
 JOHN PUFF.
  
 *Note*, Reader, several other COMMENDATORY LETTERS and COPIES of VERSES will be prepared against the NEXT EDITION.
 
 ### AN APOLOGY FOR THE LIFE OF MRS SHAMELA ANDREWS
 
-\
+
 *Parson* TICKLETEXT to *Parson* OLIVER
 
 *Rev. SIR*, 
@@ -75,9 +81,12 @@ To be short, this Book will live to the Age of the Patriarchs, and like them wil
 
 As soon as you have read this yourself five or six Times over (which may possibly happen within a Week) I desire you would give it to my little God-Daughter, as a Present from me. This being the only Education we intend henceforth to give our Daughters. And pray let your Servant-Maids read it over, or read it to them. Both yourself and the neighbouring Clergy, will supply yourselves for the Pulpit from the Book-sellers, as soon as the fourth Edition is published. I am,
 
-*Sir,*\
-*your most humble Servant*,\
+*Sir,*
+
+*your most humble Servant*,
+
 THO. TICKLETEXT.
+
 
 *Parson* OLIVER *to Parson* TICKLETEXT
 
